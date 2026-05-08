@@ -1,0 +1,1 @@
+# Pertemuan2_AldyaRisnandar_240401010362
